@@ -45,7 +45,6 @@
 
 ---
 
-### JodiPanel Schedule
 
 #### MILAN MORNING
 - **130-44-347**
