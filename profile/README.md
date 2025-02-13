@@ -17,6 +17,20 @@
 
 ### - यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 
 
+
+- **TIME BAZAR**: Loading...  
+- **PUNA BAZAR**: Loading...  
+- **RAJDHANI MORNING [main]**: 569-08-288  
+- **BOMBAY RAJSHREE DAY**: 180-9  
+- **CHENNAI BAZAR**: Loading...  
+- **COUNTRY BAZAR**: Loading...  
+- **JANTA MORNING**: 250-7  
+- **KAMAL MORNING**: 118-04-680  
+- **MAHARAJ TIME**: 490-3  
+- **MAYANGARI DAY**: 146-1  
+- **SRI DHANALAXMI**: 379-95-113  
+- **SUPER TIME**: 180-9
+
 ---
 ### Table of Contents
 1. [MILAN MORNING](#milan-morning)
