@@ -61,23 +61,23 @@
 
 
 #### MILAN MORNING
-- **130-44-347**
+- **Loading...**
 - **10:15 AM - 11:15 AM**
 
 #### SRIDEVI
-- **359-70-235**
+- **Loading...**
 - **11:35 AM - 12:35 PM**
 
 #### KALYAN MORNING
-- **589-29-568**
+- **Loading...**
 - **11:00 AM - 12:02 PM**
 
 #### PADMAVATHI
-- **366-57-160**
+- **Loading...**
 - **11:40 AM - 12:40 PM**
 
 #### MADHURI
-- **238-39-144**
+- **Loading...**
 - **11:45 AM - 12:45 PM**
 
 #### RAJDHANI MORNING [main]
